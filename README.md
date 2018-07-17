@@ -1,1 +1,9 @@
-# 2015.03.14
+Some people think that the developed countries should fund international aid to poor countries to help these developing countries to develop domestic health, education and trade. What is your opinion?
+
+As we all know, developed countries have formed a comprehensive system in any fields. However, the developing countries have nothing, but a huge number of drawbacks. Personally, I think the developed countries should assist developing countries in the building of infrastructure, because they have should help the weak and they have advanced technology.
+
+In the world, the developed countries should shoulder their duty to help the countries that are poor. There is no doubt that the developed countries have taken a lot of resources from the poor countries, so after the advanced countries have made enough money to deal with the domestic requirements. They should have the sense of responsibility to assist developing countries to solve some issues, such as lacking money in educating and lacking doctors in curing. Therefore, those countries can be called the real developed countries.
+
+Besides, the developed countries absolutely have more mordent technology in medication. For example, in the developing countries, they will spend most of their on developing economy, so they usually pay less attention on health system that making a large number of people die in illness every year, lacking enough skills in curing patients. On the contrary, in the developed countries, just a fewer people will die in sickness, because they have spent a huge amount of expenditure in medication system which can help them to treat the sick successfully. So, the developed countries should introduce that technology to the developing countries, helping them to decrease the death rate.
+
+To sum up, the developed countries should take up their duty to assist the developing countries in infrastructure.
